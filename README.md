@@ -1,2 +1,2 @@
 # Paragon z warzywniaka
-Andrzej, Andrzej
+Kto ma ogień?
